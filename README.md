@@ -1,4 +1,5 @@
-![image](https://github.com/user-attachments/assets/41afbcdf-9463-4f66-8c9d-326cec11dfa9)
+![image](https://github.com/user-attachments/assets/fdc7a66f-ed2b-47a3-8e5d-2e14ba160bad)
+
 
         ୨୧ ꒰ about ; me ꒱ ୨୧ 🎧﹐ıllı ♡
 i'm an artist, student, and active ponytown player!
@@ -11,7 +12,10 @@ i'm very friendly, so don't be afraid to msg/ping me! i just ask that you dont b
 for ponytown players:
 
 i am cuddle/hide friendly, so any touch is fine by me! sometimes i'm offtab, so please whisper to me if i don't respond to boops! i don't mind if people copy/grab inspo from my ponies, so feel free to do that!
-           -xoxo, kenobikiss  ♡ˊˎ-
+           -xoxo,  luke  ♡ˊˎ-
+
+
+![image](https://github.com/user-attachments/assets/fcd2870a-d46b-4f3c-a70d-61a67405d553)
 
 
 ‍
