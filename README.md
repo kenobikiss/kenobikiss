@@ -1,21 +1,21 @@
 ![image](https://github.com/user-attachments/assets/fdc7a66f-ed2b-47a3-8e5d-2e14ba160bad)
 
+hi , my name is luke or whatever name u know me as
 
-        ୨୧ ꒰ about ; me ꒱ ୨୧ 🎧﹐ıllı ♡
-i'm an artist, student, and active ponytown player!
-i like star wars/tcw, the boys, gaming, anime, figure-collecting, and more! i'm very multifandom.. <3
+any prns are fine by me , i really don't care
 
-for discord:
-
-i'm very friendly, so don't be afraid to msg/ping me! i just ask that you dont be creepy. i also won't accept random friend requests until i know you a bit.
-
-for ponytown players:
-
-i am cuddle/hide friendly, so any touch is fine by me! sometimes i'm offtab, so please whisper to me if i don't respond to boops! i don't mind if people copy/grab inspo from my ponies, so feel free to do that!
-           -xoxo,  luke  ♡ˊˎ-
-
-
-![image](https://github.com/user-attachments/assets/fcd2870a-d46b-4f3c-a70d-61a67405d553)
-
-
+cuddles , hide , and whispers are fine ; i just ask its from my fandoms , but that's just a preference .
 ‍
+if ur apart of the hellverse , murder drones , or hoyoverse i probably won't interact because the fandoms are usually annoying . and DNI to those stupid blunt ponies who torment other fandoms/spaces to "get high" or something .
+
+usually i'm on safe server, but if you're clicking from 18+ i'm a minor . i dont care what age you are , but if you're weird towards me i'll block you .
+
+![image](https://github.com/user-attachments/assets/5c3b4445-9718-45ce-85d4-b00744495ceb)
+
+interests ;
+
+the boys , star wars , american psycho , voca/utau , legos , disney , impractical jokers , south park , mlpfim/equestria girls , ride the cyclone , wicked , heathers , the phantom of the opera , teenage mutant ninja turtles , undertale/underverse(aus) , evangelion , crk , scott pilgrim , my chemical romance , trolls , spongebob , DEATH NOTE , animal crossing , jjk , ow2 , r6 , and probably more
+
+i'm trying to get into more fandoms like marvel and stuff so yh
+
+![image](https://github.com/user-attachments/assets/32e1af89-d5b1-4236-8226-69b15a8a664c) 
