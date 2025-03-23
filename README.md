@@ -1,3 +1,14 @@
+
+byi >
+
+i need tone tags sometimes
+
+i come off rude usually , but it's not my intent . sorry .
+
+i get clingy to star wars ponies , so if i linger--that's why .
+
+i often act like the pony i'm using
+
 ![image](https://github.com/user-attachments/assets/fdc7a66f-ed2b-47a3-8e5d-2e14ba160bad)
 
 hi , my name is luke or whatever name u know me as
