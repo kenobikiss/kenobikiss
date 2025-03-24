@@ -20,7 +20,7 @@ cuddles , hide , and whispers are fine ; i just ask its from my fandoms , but th
 ‍
 if ur apart of the hellverse , murder drones , or hoyoverse i probably won't interact because the fandoms are usually annoying . and DNI to those stupid blunt ponies who torment other fandoms/spaces to "get high" or something .
 
-usually i'm on safe server, but if you're clicking from 18+ i'm a minor . i dont care what age you are , but if you're weird towards me i'll block you .
+if you're weird towards me i'll block you .
 
 ![image](https://github.com/user-attachments/assets/5c3b4445-9718-45ce-85d4-b00744495ceb)
 
