@@ -2,6 +2,8 @@
 
 byi >
 
+w2i . i get cover discomfort .
+
 i need tone tags sometimes
 
 i come off rude usually , but it's not my intent . sorry .
