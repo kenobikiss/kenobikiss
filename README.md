@@ -1,5 +1,3 @@
-           ![image](https://github.com/user-attachments/assets/d4caa759-16a1-4d9f-a36e-233394850fe0)
-
 
 <div align='center'><a href='https://www.free-website-hit-counter.com'><img src='https://www.free-website-hit-counter.com/zc.php?d=9&id=7508&s=18' border='0' alt='Free Website Hit Counter'></a><br />
 
